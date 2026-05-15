@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://plotmailmanbang.github.io/polymarket-trading-bot-zn10/) |
  |---------------------|----------------------:|
 
 
